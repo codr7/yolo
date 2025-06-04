@@ -4,7 +4,9 @@
 
 I started working as tech lead for the Onboarding team at Yolo Group last month.
 
-Along the way my leaders in the organisation repeatedly failed to show any interest in understanding or solving problems and helping out when it didn't directly benefit them.
+You might be familiar with some of their products; Bombay Casino, Sportsbet.io, Bitcasino.io or Slots.io. Actually, I hope for your sake you're not, because they're all nothing but absolute trash entertainment.
+
+Along the way my leaders in the organisation repeatedly failed to show any interest in understanding or solving problems and helping out when it didn't directly benefit them directly.
 
 Because of this I informed them that I wouldn't be extending my 4 month contract, but wouldn't mind to keep doing an excellent job until then to ease the transition and cause minimal disruption. God knows they could use whatever professional help they can get in structuring their internal processes.
 
