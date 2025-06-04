@@ -10,6 +10,6 @@ Because of this I informed them that I wouldn't be extending my 4 month contract
 
 In return for this favor, they fired me on the spot. Cut my contract short without compensation and caused chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
 
-It seems to me like personal power trips and short sighted profits are more important than the company's reputation and wellbeing of their employees to managers in Yolo Group.
+It seems to me like personal power trips and short sighted profits are more important than the company's reputation and the wellbeing of their employees to managers in Yolo Group.
 
 Consider yourself warned; this is not the kind of company you want anything to do with, neither as an employee nor customer.
