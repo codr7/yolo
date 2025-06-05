@@ -2,13 +2,13 @@
 
 ### How Yolo Group deals with failure
 
-I started working as tech lead for the Onboarding team at Yolo Group last month.
+I joined Yolo group as tech lead for the Onboarding team last month.
 
 You might be familiar with some of their products; such as Bombay Casino, Sportsbet.io, Bitcasino.io and Slots.io.
 
 It quickly became obvious that my leaders and representatives in the organisation had little interest in understanding or solving problems and helping out when it didn't benefit them directly.
 
-Because of this I informed my manager that I wouldn't be extending my 4 month contract, but that I wouldn't mind keep doing my job until then to ease the transition and cause minimal disruption.
+Because of this I informed my manager that I wouldn't be extending my 4 month contract, but that I would like to fulfill my contract to ease the transition and cause minimal disruption.
 
 In return for this favor, they fired me on the spot, cut my contract short without compensation; and thereby caused unnecessary chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
 
