@@ -10,7 +10,7 @@ It quickly became obvious that my leaders and representatives in the organisatio
 
 Because of this I informed my manager that I wouldn't be extending my 4 month contract, but that I would still like to fulfill the contract to ease the transition and cause minimal disruption.
 
-In return for this favor, and as a thank you for the excellent work I'd done thus far; they fired me on the spot, cut my contract short without compensation; and thereby caused unnecessary chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
+In return for this favor, and as a thank you for the excellent work I'd done thus far; they fired me on the spot. Cut my contract short without compensation, and thereby caused unnecessary chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
 
 It seems to me like management in Yolo Group is more focused on personal power trips and covering up their own mistakes than the success of the company and wellbeing of their employees.
 
