@@ -4,7 +4,7 @@
 
 I started working as tech lead for the Onboarding team at Yolo Group last month.
 
-You might be familiar with some of their products; Bombay Casino, Sportsbet.io, Bitcasino.io and Slots.io (actually, I hope for your sake you're not, because they're all nothing but the worst kind of trash entertainment).
+You might be familiar with some of their products; Bombay Casino, Sportsbet.io, Bitcasino.io and Slots.io.
 
 Along the way my leaders and representatives in the organisation repeatedly failed to show any interest in understanding or solving problems and helping out when it didn't benefit them directly.
 
