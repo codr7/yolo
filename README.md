@@ -12,6 +12,6 @@ Because of this I informed my manager that I wouldn't be extending my 4 month co
 
 In return for this favor, and as a thank you for the excellent work I've done so far; they fired me on the spot, cut my contract short without compensation; and thereby caused unnecessary chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
 
-It seems to me like management in Yolo Group is more focused on power trips and covering up their own mistakes than the success of the company and wellbeing of their employees.
+It seems to me like management in Yolo Group is more focused on personal power trips and covering up their own mistakes than the success of the company and wellbeing of their employees.
 
 Consider yourself warned; this is not the kind of company you want anything to do with.
