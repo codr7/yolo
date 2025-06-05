@@ -8,7 +8,7 @@ You might be familiar with some of their products; such as Bombay Casino, Sports
 
 It quickly became obvious that my leaders and representatives in the organisation had little interest in understanding or solving problems and helping out when it didn't benefit them directly.
 
-Because of this I informed my manager that I wouldn't be extending my 4 month contract, but that I would like to fulfill my contract to ease the transition and cause minimal disruption.
+Because of this I informed my manager that I wouldn't be extending my 4 month contract, but that I would still like to fulfill the contract to ease the transition and cause minimal disruption.
 
 In return for this favor, they fired me on the spot, cut my contract short without compensation; and thereby caused unnecessary chaos and confusion in the team I was leading as well as for the people in the organisation depending on our services.
 
