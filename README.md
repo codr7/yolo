@@ -18,4 +18,6 @@ I still haven't received a pay check for the work I did, and I don't at all look
 
 If you want to learn more about what kind of company Yolo Group is, I recommend the comments on [this](https://www.reddit.com/r/Eesti/comments/1l4s2l0/how_yolo_group_deals_with_failure/) Reddit post.
 
-Consider yourself warned; this is not the kind of company you want anything to do with!
+Consider yourself warned; this is not the kind of company you want anything to do with.
+
+Any assistance with spreading the word is most appreciated, help me hold these scumbags accountable for once!
