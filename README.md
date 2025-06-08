@@ -20,4 +20,4 @@ If you want to learn more about what kind of company Yolo Group is, I recommend 
 
 Consider yourself warned; this is not the kind of company you want anything to do with.
 
-Any assistance with spreading the word is most appreciated, help me hold these scumbags accountable for once!
+Any assistance with spreading the word is most appreciated, let's hold these scumbags accountable for once!
