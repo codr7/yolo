@@ -16,8 +16,10 @@ It seems to me like management in Yolo Group is more focused on personal power t
 
 I still haven't received a pay check for the work I did, and I don't at all look forward to having go the legal route to force them to fullfill their obligations. Everyone I've spoken to, from HR to managers to legal representatives, keeps making excuses and coming up with new rules and things I have to do to get paid.
 
+I was in a pretty rough spot financially already when I started since I hade already been 5 months without an income; they know everything about this as I explained the situation and asked for an advance, which was denied. The strategy now seems to be to bleed me dry and force me to surrender and accept whatever terms they give me.
+
 If you want to learn more about what kind of company Yolo Group is, I recommend the comments on [this](https://www.reddit.com/r/Eesti/comments/1l4s2l0/how_yolo_group_deals_with_failure/) Reddit post.
 
 Consider yourself warned; this is not the kind of company you want anything to do with.
 
-Any assistance with spreading the word is most appreciated, let's hold these scumbags accountable for once!
+**Any assistance with spreading the word is most appreciated, let's hold these scumbags accountable for once!**
