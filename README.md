@@ -1,6 +1,6 @@
 ![Logo](logo.png)
 
-### How Yolo Group deals with failure
+### Working at Yolo Group
 
 I joined Yolo group as tech lead for the Onboarding team last month.
 
