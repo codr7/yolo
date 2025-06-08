@@ -2,11 +2,9 @@
 
 ### Working at Yolo Group
 
-I joined Yolo group as tech lead for the Onboarding team last month.
+I joined Yolo group as tech lead for the Onboarding team last month. You might be familiar with some of their products; such as Bombay Casino, Sportsbet.io, Bitcasino.io and Slots.io.
 
-You might be familiar with some of their products; such as Bombay Casino, Sportsbet.io, Bitcasino.io and Slots.io.
-
-People say I should have known what was waiting, but I didn't; I figured laws applied even to online casinos and there would be good people working there as well. So I'm sharing my story to at least allow people to make informed choices and prevent the company from playing their dirty game with more innocent lives.
+People are saying I should have known what was waiting; but I didn't, I figured laws applied even to online casinos and there would be good people working there as well. So I'm sharing my story to at least allow people to make informed choices and prevent the company from playing their dirty game with more innocent lives.
 
 It quickly became obvious that my leaders and representatives in the organisation had little interest in understanding or solving problems and helping out when it didn't benefit them directly. Since this behavior defined the outer limits of my ability to help my team, I concluded it would be impossible for me to do my job the way I wanted to.
 
